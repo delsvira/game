@@ -3,7 +3,7 @@
    You can adapt this file completely to your liking, but it should at least
    contain the root `toctree` directive.
 
-Tempat Download Kit DLS Terbaru Dan Kit 
+Tempat Download Kit DLS Terbaru Dan Informasi Menarik
 ========
 
 Dapatkan kit dls di https://www.all-ways.co.uk yang merupakan sebuah situs yang terdapat berbagai macam kit dream league soccer yang menarik. Bahkan bukan cuma itu saja disini juga terdapat informasi teknologi terkini terutama tentang daftar hp vivo harga 1 jutaan. Sebuah situs yang sangat bagus bagi kamu yang sedang mencari informasi hp android murah terbaru.
